@@ -1,4 +1,4 @@
-# 
+# rare Adobe Photoshop PC版 扩展 是最佳 Adobe Photoshop PC版 扩展，集成 对象样式 和 纹理。安全、可靠、优化，性能最大化。
 
 
 
